@@ -1,4 +1,4 @@
-# <u> Short Bios </u>
+# <u> Short Bio </u>
 
 ## Sophia Emmanouilidou
 
